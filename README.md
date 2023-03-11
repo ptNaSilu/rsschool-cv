@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ptNaSilu.github.io/rsschool-cv/cv
