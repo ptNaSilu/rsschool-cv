@@ -1,1 +1,1 @@
-https://ptNaSilu.github.io/rsschool-cv/cv
+https://ptNaSilu.github.io/rsschool-cv/
